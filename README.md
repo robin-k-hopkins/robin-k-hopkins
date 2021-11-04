@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @robin-k-hopkins
 - 👀 I’m interested in dance, good food, and all the nerdy thangs
-- 🌱 I’m currently learning the fundamentals of being me and shining my light, and using it to help oters grow
+- 🌱 I’m currently learning the fundamentals of being me and shining my light, and using it to help others grow
 - 💞️ I’m looking to collaborate on building dynamic content to help others make the world a better place
 - 📫 How to reach me ...
 
